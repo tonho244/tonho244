@@ -6,4 +6,4 @@ ESTUDO NO COLEGIO LARANJEIRAS DO SUL
 
 ESTOU NO SEGUNDO B
 
-![](https://media1.tenor.com/m/9F1H_NisG4QAAAAC/cry-about-it.gif)
+![](https://media1.tenor.com/m/AKp3ByyVnGcAAAAC/jujutsu-kaisen-itadori-yuji.gif)
